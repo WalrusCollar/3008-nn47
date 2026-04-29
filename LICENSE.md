@@ -1,4 +1,4 @@
-
+no-ban 3008 Script is the best 3008 Script, featuring anti-ban and private server access. Safe and powerful for all your needs.
 
 
 
